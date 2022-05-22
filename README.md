@@ -1,3 +1,3 @@
 # Hi there :D
 
-![dormindo-macaquinho](https://user-images.githubusercontent.com/92319332/169673807-dca70db9-127c-42ed-aa7d-7f654f41a9e4.gif)
+![ezgif-3-cd2e3405f0](https://user-images.githubusercontent.com/92319332/169673849-d2d37e9c-b5b6-48e6-94b7-1fc2bcde4502.gif)
