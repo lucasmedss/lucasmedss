@@ -1,3 +1,3 @@
 # Hi there :D
 
-Graduando em Ciência da Computação na UFCG. ☀
+Graduando em Ciência da Computação na UFCG. 💻
